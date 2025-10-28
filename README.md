@@ -5,7 +5,7 @@
 > *"Direct Democracy without representations"*
 > *"Auto do politics, polucy, policing"*
 
-GRAY ORDER is a governance system. It is a —an autonomous automation, self-evolving ecosystem of intelligent sub-states governed by **Constitutional Artificial Intelligence (CAI)**. Built to transcend the pseudo plurality of democracy vs. autocracy, control vs. chaos, left vs. right, capital vs community.
+GRAY ORDER is a governance system. It is an autonomous automation, self-evolving ecosystem of intelligent sub-states governed by **Constitutional Artificial Intelligence (CAI)**. Built to transcend the pseudo plurality of democracy vs. autocracy, control vs. chaos, left vs. right, capital vs community.
 
 GRAY ORDER operates in the **gray space**: where systems are not just smart, but **consciously principled**.
 
